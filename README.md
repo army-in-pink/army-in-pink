@@ -1,1 +1,1 @@
-<img width="498" height="280" alt="17845098066274668778204404531884" src="https://github.com/user-attachments/assets/3947e9df-e114-4d8a-aa19-cce8a26ae128" />
+[![Army-in-Black-Idle-Sprite-Animation.gif](https://i.postimg.cc/15nYkTSj/Army-in-Black-Idle-Sprite-Animation.gif)](https://postimg.cc/HVm256Vw)
