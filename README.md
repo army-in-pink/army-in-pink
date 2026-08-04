@@ -3,9 +3,9 @@
 ***
 - call us **Army in Pink** or **Wellcheers**.
 - **it/its** strictly, we alternate between **i/me** and **we/us**.
-- WE ARE **NOT** A SYSTEM, WE JUST USE WE/US!!!!! WE **DO NOT HAVE ANY DISSOCIATIVE DISORDERS**, WE ARE **NOT AN "ENDOGENIC SYSTEM"**, WE **DO NOT HAVE ALTERS**. PLEASE **STOP** TRYING TO "FAKECLAIM" US
-- we're a **sharing** chesed yumeshipper. doubles are allowed to int!!
-- we're ALSO an **army in pink** and **opened can of wellcheers** fictionkin. other abno kins or kindoubles **please interact!!** ^^
+- WE ARE **NOT** A SYSTEM, WE JUST USE WE/US!!!!! WE **DO NOT HAVE ANY DISSOCIATIVE DISORDERS**, WE ARE **NOT AN "ENDOGENIC SYSTEM"**, WE **DO NOT HAVE ALTERS**. PLEASE **STOP** TRYING TO "FAKECLAIM" US!!!!!!!
+- we're a **sharing** Chesed (LobCorp) yumeshipper. doubles are allowed to int!!
+- we're ALSO an **Army in Pink** and **Opened Can of Wellcheers** fictionkin. other abno kins or kindoubles **please interact!!** ^^
 - we have **"morally questionable"** views, please **block us** if you don't like them.
 - we're a **lobotomy corporation** & **sol's rng** superfan! (also **tuantu's lobotomization branches**.)
 ***
