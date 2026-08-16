@@ -1,5 +1,5 @@
-[![Army-in-Black-Idle-Sprite-Animation.gif](https://i.postimg.cc/15nYkTSj/Army-in-Black-Idle-Sprite-Animation.gif)](https://postimg.cc/HVm256Vw)
-[![text-(5).gif](https://i.postimg.cc/3Rkc3bpy/text-(5).gif)](https://postimg.cc/8JVHH4ZD)
+<img width="472" height="354" alt="image" src="https://github.com/user-attachments/assets/f26324e8-f9f7-49d6-83f4-d8cecdfce58b" />
+
 ***
 - call us **Wellcheers** or **Army in Pink**
 - **it/its** strictly, we alternate between **i/me** and **we/us**, depending on how we're feeling.
