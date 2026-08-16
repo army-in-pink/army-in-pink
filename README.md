@@ -8,5 +8,3 @@
 - we're ALSO an **Army in Pink** and **Opened Can of Wellcheers** fictionkin. other abno kins or kindoubles **please interact!!** ^^
 - we have **"morally questionable"** views, please **block us** if you don't like them.
 - we're a **lobotomy corporation**, **limbus company** & **sol's rng** superfan! (also **tuantu's lobotomization branches**.)
-***
-[![EGOWeapon-Pinks.webp](https://i.postimg.cc/SRyYWHrN/EGOWeapon-Pinks.webp)](https://postimg.cc/7GWL4sdp)
